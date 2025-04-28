@@ -1,4 +1,3 @@
-Perfect! 🚀 Here's the **updated GitHub profile README** with a **stylish banner** and **profile badges** included:
 
 ---
 
